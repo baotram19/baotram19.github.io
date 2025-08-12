@@ -1,4 +1,4 @@
-# Introduction
+# Thông tin
 
 Đại học Kinh tế TP. Hồ Chí Minh, Việt Nam  
 [2025-08] UEH25-KTLT-ECO  
